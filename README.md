@@ -1,2 +1,2 @@
-# Simpanan-Kj
-Apaan jir, cuman simpenan doang :v
+# Simpanan-Ku
+Repositori Yang berisi foto² simpanan agar tidak hilang
